@@ -1,0 +1,4 @@
+Abulov Umidjon 
+Matematika
+Futbol
+
