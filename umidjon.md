@@ -1,0 +1,3 @@
+Umidjon Abulov 
+Matematika
+Futbol
