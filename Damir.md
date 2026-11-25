@@ -1,0 +1,3 @@
+Damir Adilbayev
+Fizika
+uxlash
