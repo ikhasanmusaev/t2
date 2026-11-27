@@ -1,0 +1,3 @@
+Dilshodbek
+Jisman
+Uyxlau
